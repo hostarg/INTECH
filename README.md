@@ -1,3 +1,3 @@
 
-![FUNCIONAAA](http://postimg.cc/YG4g2BCf)
+![FUNCIONAAA](https://i.postimg.cc/W387n2RK/log-intech-seg-opci-n.png)
  
